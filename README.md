@@ -58,7 +58,7 @@ Mettre à profit mon parcours universitaire, mes connaissances et mes compétenc
 ## 📫 Me contacter
 
 - **Localisation :** Sénégal
-- **LinkedIn :** https://www.linkedin.com/in/pape-djibril-ndiaye-039062321/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BuZJSTi%2BAQPC6rxcRNoKuVQ%3D%3D
+- **LinkedIn :** https://www.linkedin.com/in/pape-djibril-ndiaye-039062321/
 - **E-mail :** papedjibrindiaye1@gmail.com
 
 ---
